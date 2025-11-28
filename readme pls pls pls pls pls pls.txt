@@ -1,1 +1,1 @@
-so I hate all AI web pages. I'll try create new by myself >_< asdas
+so I hate all AI web pages. I'll try create new by myself >_< 
